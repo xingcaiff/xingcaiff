@@ -1,4 +1,6 @@
-## Hi there 👋
+## 杏彩平台-杏彩平台用户注册登录网址-杏彩官方网站
+
+<https://xingcaiff.github.io>
 
 <!--
 **xingcaiff/xingcaiff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
